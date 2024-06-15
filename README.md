@@ -1,1 +1,1 @@
-commanly used forms..!
+commonly used forms..!
